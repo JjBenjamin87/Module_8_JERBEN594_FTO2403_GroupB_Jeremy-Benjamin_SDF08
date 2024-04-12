@@ -1,4 +1,4 @@
-SDF08 LOOM VIDEO
+[SDF08 LOOM VIDEO](https://www.loom.com/share/a40990794fa64ddcbe9d130fa0e7b16a?sid=de1d3666-5795-4085-8586-fe9d1aa565b8)
 
 # [SDF08] Build Your Portfolio MVP
 
